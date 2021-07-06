@@ -17,3 +17,5 @@
 
 ## Abra um PullRequest com suas alterações
 
+
+o curso está otimo!! espero chegar no top 300...
